@@ -1,6 +1,6 @@
 # Abhigyan Kumar Sinha
 
-**🎓 4th Year B.Tech Computer Science & Engineering Student | Amity University**
+**🎓 4th Year B.Tech Computer Science & Engineering Student | Amity University Jharkhand**
 
 Aspiring Software Developer & Data Scientist | Passionate about Innovation | Open to MNC and Start-Up Opportunities
 
