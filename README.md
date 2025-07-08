@@ -52,5 +52,8 @@ Hello! I'm Abhigyan, a final-year Computer Science & Engineering student at Amit
 ## 💡 Let's Connect!
 
 I'm always excited to collaborate on innovative projects, discuss technology trends, or explore new opportunities. Feel free to reach out!
+Contact Detail:- 
+**Email id:-** abhigyan.027.j@gmail.com
+**Contact No./ WhatsApp no. :-** 9504772441
 
 ---
